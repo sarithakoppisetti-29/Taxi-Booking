@@ -27,29 +27,9 @@ csancb ansc
 vc vbcvcvcvbv'vvv
 bvbvv
 bvbv
-cbxncbncbndcbndbcn
-ndsbndbfcnbfcDSN
-cbdvcbdsvsb cds cdcbansbcsbjs
- xnxa cna na bcnas
- xns XMSmZ 
-nsdabncbndsbncd
-hdbjwhf
-dcwdcbwjcwd
-wefbcwefc'ewlfcewbcfjewc
+cbxncbncb
 ewq
 hdgshds
 csdcbsdncbsd
-\dscvsdn
-dsadsbcnbc hdcbdsab
-sdnbdnscbsnd ncbsdnbm
-dsnsdn  cndsbsnbm
-dn vnd d mdsa
- dc bsd cab csbac ab
- c bsa cbas b
- csa ba b sca
-sca ans cans csan nas cnas
-csan casncan
-bsbc bcb cbx cx z
-nbnsxbncbnb
- cnbdsn bsdnb n bsdn
+\d
   s s snd
